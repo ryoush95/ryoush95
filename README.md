@@ -2,10 +2,10 @@
 
 **Android developer**
 
-⚡profile : https://windy-apricot-5b1.notion.site/aec131f4446c42728fc9eef6bd3ad37b \n
-⚡email : rshsh2433@gmail.com \n
-⚡github : https://github.com/ryoush95 \n
-⚡naver blog : https://blog.naver.com/ryou2433 
+⚡profile : https://windy-apricot-5b1.notion.site/aec131f4446c42728fc9eef6bd3ad37b   
+⚡email : rshsh2433@gmail.com    
+⚡github : https://github.com/ryoush95    
+⚡naver blog : https://blog.naver.com/ryou2433    
 ⚡
 
 
